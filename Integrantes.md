@@ -1,1 +1,1 @@
-Brillith Vanesa Parra Guzmán, Equipo: Los curiosos, Dato: Café frio
+Brillith Vanesa Parra Guzmán, Equipo: Los curiosos, Dato: Café frio con hielo
